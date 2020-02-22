@@ -1,1 +1,1 @@
-# rsschool-cv
+https://PinkyUni.github.com/rsschool-cv/cv
